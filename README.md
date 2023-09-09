@@ -1,1 +1,0 @@
-# FinzlyTrainingAssessment2
